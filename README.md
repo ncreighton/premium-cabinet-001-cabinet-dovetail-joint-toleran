@@ -1,0 +1,2 @@
+# premium-cabinet-001-cabinet-dovetail-joint-toleran
+Stop wasting premium hardwood on loose dovetails – the difference between a tight, lasting joint and a reject is often just 0.005 inches. Track every tolerance before assembly and eliminate drawer fit frustration.  The Cabinet Dovetail Joint Tolerance Tracker is the only Notion template built for the exacting standards of dovetail joinery. It repla
